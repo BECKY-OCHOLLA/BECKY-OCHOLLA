@@ -1,6 +1,6 @@
 
 ### Hi there 👋, Becky Ocholla
-![software development](https://BECKY-OCHOLLA.github.io/github-profile-readme-generator/images/banner.png)
+![software development](https://github.com/BECKY-OCHOLLA/BECKY-OCHOLLA/blob/main/BECKY1.png)
 
 
 
