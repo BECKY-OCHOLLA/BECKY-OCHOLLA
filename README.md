@@ -1,6 +1,6 @@
+![software development](https://github.com/BECKY-OCHOLLA/BECKY-OCHOLLA/blob/main/BECKY1.png)
 
 ### Hi there 👋, Becky Ocholla
-![software development](https://github.com/BECKY-OCHOLLA/BECKY-OCHOLLA/blob/main/BECKY1.png)
 
 
 
